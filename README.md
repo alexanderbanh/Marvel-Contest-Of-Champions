@@ -1,1 +1,1 @@
-# Marvel-Contest-Of-Champions
+<p><a href="https://t.co/PUAXL2xiAk#marvelcontest_hack" target="_blank"><img style="vertical-align: middle;" src="https://i.imgur.com/jtABW5Q.png" alt="" width="338" height="150" /></a></p>
